@@ -1,0 +1,2 @@
+# Polymorhism
+terserah gua kek
